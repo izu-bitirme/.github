@@ -1,4 +1,4 @@
-# Herkese iyi çalışmalar! 🙌
+# Proje Ekibine Hoşgeldiniz! 🙌
 
 
 
